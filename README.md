@@ -7,3 +7,4 @@ oh and read my carrd aswell it has more info abt me https://maemaethecat.carrd.c
                                   ฅ^._.^ฅ
 
 sometimes i go afk if im unresponsive and you wanted to talk please whisper and ill respond later !!!
+i also tend to cuddle or hide behind other ppl 
