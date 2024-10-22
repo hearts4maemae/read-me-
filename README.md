@@ -10,4 +10,4 @@ sometimes i go afk if im unresponsive and you wanted to talk please whisper and 
 i also tend to cuddle or hide behind other ppl 
 
 do not copy or take inspo from any of my ponies !! i work really hard on them and i know u can to 
-so please be creative and dont use me to do that
+so please be creative you dont me to find that creativity
