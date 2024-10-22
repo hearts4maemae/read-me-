@@ -8,3 +8,6 @@ oh and read my carrd aswell it has more info abt me https://maemaethecat.carrd.c
 
 sometimes i go afk if im unresponsive and you wanted to talk please whisper and ill respond later !!!
 i also tend to cuddle or hide behind other ppl 
+
+do not copy or take inspo from any of my ponies !! i work really hard on them and i know u can to 
+so please be creative and dont use me to do that
